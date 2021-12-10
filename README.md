@@ -1,6 +1,9 @@
 THE DECLINE OF WAR SINCE 1950: NEW EVIDENCE    
 https://link.springer.com/content/pdf/10.1007%2F978-3-030-31589-4_11.pdf
 
+Submitted:   NA    
+Accepted:    NA    
+
 For issues replicating the results contact me via email: vanweezel (at) pm.me.
 
 **Abstract:**
